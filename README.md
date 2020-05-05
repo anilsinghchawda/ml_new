@@ -1,1 +1,2 @@
-Assignment for Bipoar Factory
+news & information websites & anticipate the likelihood of its virality.
+
